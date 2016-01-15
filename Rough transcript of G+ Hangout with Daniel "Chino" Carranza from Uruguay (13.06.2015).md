@@ -1,6 +1,7 @@
 #Rough transcript of G+ Hangout with Daniel "Chino" Carranza from Uruguay (13.06.2015)
 
-(https://www.youtube.com/watch?v=TlNBs2w5JyI)
+VIDEO: https://www.youtube.com/watch?v=TlNBs2w5JyI 
+Daniel's SLIDES: https://docs.google.com/presentation/d/1qcY0_erMXrqSkvLS7RTn2loqm48G1lFGkCTd0mZy_Ps/edit#slide=id.g10a7ea7c5_036
 
 Daniel:
 
